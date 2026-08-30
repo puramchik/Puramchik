@@ -1,16 +1,17 @@
-## Hi there 👋
+Ｍｕｓｉｃ                                                                                                                                                                                             
 
-<!--
-**puramchik/puramchik** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Lady Gaga, MARINA, Olivia Rodrigo, Sabrina Carpenter, Billie Eilish, Charli XCX, Taylor Swift, Britney Spears, Lana Del Rey, Dua Lipa, Katy Perry, Rihanna, Chappell Roan                                   
 
-Here are some ideas to get you started:
+Ｇａｍｅｓ                                                                                                                                                                                                     
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Genshin Impact, Raft, Minecraft, The Forest, Sons of the Forest, Stardew Valley, Poppy Playtime, Phasmophobia, Honkai: Star Rail, Fall Guys, R.E.P.O, YAPYAP, Supermarket together, Bread & Fred, Kebab chefs, Pico Park, Slime rancher, Super bunny man, The Sims, Wuthering Waves, Roblox, Brawl Stars, Tiny Bunny, The Planet Crafter, Who's Your Daddy?, Among Us, Human Fall Flat, GTA5, Roblox, Meccha Chameleon                                                           
+                                                                                                                                                                                                                          
+Ｍｏｖｉｅｓ ａｎｄ ｓｅｒｉｅｓ             
+
+Miraculous, Stranger things, Stiven Universе, Rick And Morty, The Owl House, Fhineas and Ferb, Harry Potter, Ninjago, Arcane, Riverdale, The amazing world of Gumball, The Devil wears Prada, Cruella, A Star Is Born, Joker: Folie à Deux, Gaga: Five Foot Two, Scream Queens, Adventure Time, Alvin and the Chipmunks, K.C. Undercover, Shameless, Twilight, Winx, Gravity Falls, Кухня, Чернобыль: Зона отчуждения, Charlie and the Chocolate Factory, Beetlejuice, Sex Education, The Amazing Digital Circus, Bridge To Terabithia, Metal Family, Big Hero, Lazy Town, House of Gucci, The Goldfinch, IT, Abe, Waiting for Anya, The Tutor, H2O: Just Add Water, Interstellar, Scooby-Doo, Wednesday, Barbie, Power Rangers, Euphoria, Jessie, Lilo and Stitch, Hubie Halloween, Squid Game, Mamma Mia!, Дух моей общаги, Hazbin Hotel, Desperate Housewives, Frozen 
+                                                                                                                                                                                                                            
+Heartstopper, Young Royals, Young Hearts, Brokeback Mountain, Call Me by Your Name, Eyewitness, Love, Simon, 2gether, Heated Rivalry, Red, White & Royal Blue, Summer 85', The Thing About Harry, Alex Strangelove, Love, Victor                                                                                                                                          
+
+Ａｎｉｍｅ                                                                                                                                                        
+                                                                                                                                  
+Тетрадь Смерти, Alien Stage, Монолог Фармацевта, Унесённые призраками, Скейт Бесконечности, Юри на льду, Эхо Террора, Клинок, рассекающий демонов, Первородный грех Такопи, Незнакомец на берегу моря, Блюз машины времени на четырёх с половиной татами                                                                                                                                   
