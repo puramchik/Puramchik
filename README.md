@@ -1,10 +1,20 @@
+
+
+
 Ｍｕｓｉｃ                                                                                                                                                                                             
 
 Lady Gaga, MARINA, Olivia Rodrigo, Sabrina Carpenter, Billie Eilish, Charli XCX, Taylor Swift, Britney Spears, Lana Del Rey, Dua Lipa, Katy Perry, Rihanna, Chappell Roan                                   
 
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/e2b91f41-b46b-48a6-9866-3068c6cc2c5e" />
+
+
+
 Ｇａｍｅｓ                                                                                                                                                                                                     
 
-Genshin Impact, Raft, Minecraft, The Forest, Sons of the Forest, Stardew Valley, Poppy Playtime, Phasmophobia, Honkai: Star Rail, Fall Guys, R.E.P.O, YAPYAP, Supermarket together, Bread & Fred, Kebab chefs, Pico Park, Slime rancher, Super bunny man, The Sims, Wuthering Waves, Roblox, Brawl Stars, Tiny Bunny, The Planet Crafter, Who's Your Daddy?, Among Us, Human Fall Flat, GTA5, Roblox, Meccha Chameleon                                                           
+Genshin Impact, Raft, Minecraft, The Forest, Sons of the Forest, Stardew Valley, Poppy Playtime, Phasmophobia, Honkai: Star Rail, Fall Guys, R.E.P.O, YAPYAP, Supermarket together, Bread & Fred, Kebab chefs, Pico Park, Slime rancher, Super bunny man, The Sims, Wuthering Waves, Roblox, Brawl Stars, Tiny Bunny, The Planet Crafter, Who's Your Daddy?, Among Us, Human Fall Flat, GTA5, Roblox, Meccha Chameleon                                                                                                                                                                                                     
+
+<img width="1199" height="400" alt="image" src="https://github.com/user-attachments/assets/93b860ed-2079-48c5-8c64-1c078055091e" />
+                                                                                                                                    
                                                                                                                                                                                                                           
 Ｍｏｖｉｅｓ ａｎｄ ｓｅｒｉｅｓ             
 
@@ -12,6 +22,9 @@ Miraculous, Stranger things, Stiven Universе, Rick And Morty, The Owl House, Fh
                                                                                                                                                                                                                             
 Heartstopper, Young Royals, Young Hearts, Brokeback Mountain, Call Me by Your Name, Eyewitness, Love, Simon, 2gether, Heated Rivalry, Red, White & Royal Blue, Summer 85', The Thing About Harry, Alex Strangelove, Love, Victor                                                                                                                                          
 
+
+
+                                                                    
 Ａｎｉｍｅ                                                                                                                                                        
                                                                                                                                   
 Тетрадь Смерти, Alien Stage, Монолог Фармацевта, Унесённые призраками, Скейт Бесконечности, Юри на льду, Эхо Террора, Клинок, рассекающий демонов, Первородный грех Такопи, Незнакомец на берегу моря, Блюз машины времени на четырёх с половиной татами                                                                                                                                   
