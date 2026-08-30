@@ -1,14 +1,11 @@
 
 <img width="1200" height="400" alt="Untitled48_20260831003007" src="https://github.com/user-attachments/assets/68fa129e-0d96-4383-b425-4d4de6b3f832" />
 
-
-
 Ｍｕｓｉｃ                                                                                                                                                                                             
 
 Lady Gaga, MARINA, Olivia Rodrigo, Sabrina Carpenter, Billie Eilish, Charli XCX, Taylor Swift, Britney Spears, Lana Del Rey, Dua Lipa, Katy Perry, Rihanna, Chappell Roan                                   
 
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/e2b91f41-b46b-48a6-9866-3068c6cc2c5e" />
-
 
 
 Ｇａｍｅｓ                                                                                                                                                                                                     
@@ -25,8 +22,6 @@ Miraculous, Stranger things, Stiven Universе, Rick And Morty, The Owl House, Fh
 Heartstopper, Young Royals, Young Hearts, Brokeback Mountain, Call Me by Your Name, Eyewitness, Love, Simon, 2gether, Heated Rivalry, Red, White & Royal Blue, Summer 85', The Thing About Harry, Alex Strangelove, Love, Victor                                                                                                                                          
 
 <img width="1200" height="400" alt="Untitled47_20260831000815" src="https://github.com/user-attachments/assets/8e066b3c-346f-4416-ac4e-509f494a3006" />
-
-
 
                                                                     
 Ａｎｉｍｅ                                                                                                                                                        
